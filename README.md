@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Nikita 🍺
+- 👀 I’m interested in Physics and Biology 🥳
+- 🌱 I’m currently learning Physics in MSU 🤡
